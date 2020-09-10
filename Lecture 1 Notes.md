@@ -1,0 +1,33 @@
+- Hegel philosophical project - 'demonstrating the unity/identity between subject and object'
+	- What does this mean? 
+		- Term: unity/identity - "harmony"
+		- Between reason and reality (world we actually live in)
+	- Hegel - Rational is the real 
+- Project - demonstrate / ask under what conditions is the world we inhabit a rational world/ hospitable to the "demands of reason" ("ends of reason")
+- How does this come up in Kant? 
+	- Three critiques
+	- Critique of Pure (Theoretical) Reason
+		- Term: "Pure" refers to a priori - reason that tries to know **unconditioned** reality  (this INCLUDES parts of Practical) 
+		- Our ability to know the world -> to what extent is human reason able to "know" the world
+		- Claim 1: We can know the empirical world - to an extent. 
+		- Claim 2: Theoretical reason when it tries to access the things in themselves worlds
+		- Claim 3: The (possibility) of human freedom is compatible with causal determinism - BY positing two world (appearances, things in themselves)
+	- Critique of Practical Reason 
+		- We cannot know things that matter most. 
+		- Is the world a systematic whole intelligible to reason? (more to unpack )
+		- Claim 4: It is possible to be motivated by reason/moral world
+		- Distinction between understanding and theoretical reason
+			- Understanding - faculty of concepts 
+		- Critique of Judgment:
+			- The issue: Is it possible for human subjects to "be at home" (a Hegelian term) in the real world? Does reality accommodate the basic needs of humans? 
+	- To what extent (TWE) can our reason 'know the world' :
+		- Rejects traditional rational metaphysics. Reason CANNOT give us metaphysical knowledge. What exactly is he denying? 
+			- "traditional rational metaphysics" - rational a prior knowledge that exists INDEPENDENT of subjects. Through reason alone. 
+			- Term: Absolute Reality- *Kant* -  the way the world is not subject to the conditions of human sensibility (not merely as it appears to human)
+		- Defend natural science - genuine "knowledge" of empirical objects 
+		- Kantian (New Metaphysics) - A prior knowledge under the **conditions of which we can have experience** (i.e all causes, time in one direction, space in 3D)
+		- The objects we can rightfully claim to know - are unified - by the concepts we bring to.  We can know appearances. 
+- Why are post Kantian idealist (read: Hegel) unhappy with Kant's limitations/solution? 
+	- They DO NOT have a problem with unknowable nature of SOME things in themselves (i.e God, Infinity). NOT a problem with things that do not conform to CONCEPTS. 
+	- THE PROBLEM:
+		- Human can NEVER have knowledge of "empirical objects" - incapable of since it cannot grasp the ENTIRE set of conditions (the infinite regress of cause)
