@@ -1,0 +1,5 @@
+- **The Principle of the Formal Purposiveness of Nature Is a Transcendental Principle of Judgement** (Pg. 20-26)
+	- "The harmony of nature with our cognative powers is presupposed a priori by **judgement** as an aid in its **reflection** of nature in terms of its empirical laws" (Pg. 24)
+		- Is the purpose of nature, in a simplistic sense, for humans to "grasp" it. 
+		- Why does it necessarily need to be intelligible? 
+- **How Judgement Connects the Legislation of the Understanding and of Reason** (pg. 35-38)

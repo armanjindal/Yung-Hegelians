@@ -30,4 +30,4 @@
 - Why are post Kantian idealist (read: Hegel) unhappy with Kant's limitations/solution? 
 	- They DO NOT have a problem with unknowable nature of SOME things in themselves (i.e God, Infinity). NOT a problem with things that do not conform to CONCEPTS. 
 	- THE PROBLEM:
-		- Human can NEVER have knowledge of "empirical objects" - incapable of since it cannot grasp the ENTIRE set of conditions (the infinite regress of cause)
+		- Humans can NEVER have knowledge of "empirical objects" - incapable of since it cannot grasp the ENTIRE set of conditions (the infinite regress of cause)

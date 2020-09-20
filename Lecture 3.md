@@ -1,0 +1,27 @@
+- Problem of the critique of judgment - bridging the gap between theoretical (understanding) and practical reason 
+- Two legislations of the understanding - categories for nature (spatial and temporal) - legislation of practical reasons - the purposes practical reasons realizes in the world : the ends of justice and ends of world peace
+- Independent of each other, and autonomous of one another
+- The problem for Kant - a conflict in the "effects" the two legislations
+- Can the natural world do justice to freedom. Is the natural world compatible with justice and peace (first approximation)
+	- Kant actually asking - not just possible, but POSITIVE reasons in nature so that the ends of practical reason are actively realized. More than mere possibility, 
+- 2nd Critique - we cannot therefore practical reason dictates that we (must) believe in god, freedom, immortal soul. Justified by the concept of the highest good - a world where moral virtue and happiness are joined together. These do not appear in the empirical 
+- 3rd Critique - all the 'problems' need to be solved
+-  What is at stake here? What if philosopher does not solve this problem? 
+-  Claim - both theoretical and practical reason on their own require us to posit the super-sensible. Whatever grounds appearances and accounts for the content of our senses. Understanding needs to posit a supersensible, and practical reasons also requires us to refer to supersensible. 
+-  "it must be possible to **think** of nature" will "harmonize" - two ways of thinking about the supersensible. Does nature "guarantee/favor" the realization of freedom 
+-  We cannot "know" if there is a harmonized supersensible - reason must POSIT a unified ground
+-  Judgment is a faculty that looks for "evidence" of the harmony in the natural -  contain an a priori principle that mediates understanding and reason. 
+	-  It cannot give us knowledge of the world. It tells us what to look for. 
+	-  Examples: Many of the essays are extensions of the 3rd critique - nature brings about the ideal (peaceful and just) state. Argument - human beings follow their particular desires, leads to a collective good that emerges. 
+	-  Faculty of judgement dicated by the reason such that nature itself serves the ends of practical reason. 
+-  What is at stake here for Kant? Why is this porject urgent? 
+	1. Reason is driven to unitfy (how does one check this clam?)
+	2. Hope
+		- What can we know, what ought to do, what may we hope for? (i.e what does reason entitle us to "hope for")
+		- The 3rd critique is concerned with the last question. Finding the telos of Nature (i.e what is nature set up for)
+	- If we cannot do this - we are left with despair. Hegelian way - human subjects cannot be reconciled (affirm/satisfied/'as a home') in the world if freedom, morality, and to KNOW do not cohere. They are alienented from the world they inhabit.
+- Is it possible to **see** the whole of creation as "good" - try to avoid a tragic picture of the world - it is a picture we cannot be satisfied
+- Understanding only legislates the "FORM" of nature 
+- Why are we obligated to LOOK for the unity - not prove the existence of certain things. We look for a certain purposivness that accommodates ends of reason. 
+- Determinitive - "Socrates is a human being" - presupposes human, and judges that Socrates is one of these things. Gives us knowledge of these judgments 
+- Reflective - start from particular and arrive at a rule or concept - i.e crocodile it is knowledge extending because it starts with particulars in a formative way 

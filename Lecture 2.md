@@ -1,0 +1,32 @@
+- Aim of Philosophy according to Hegel to demonstrate and essential harmony between subjects and the world. Human experience to KNOW the world - the most important topics (god, freedom, immortality) also in a practical sense. 
+	- Aspiration to know the world, be free, to be happy in the world 
+	- World is fundamentally rationally intelligible and good
+- Hegel's aim is in conflict with Kant. Everything Kant says we cannot know but must believe Hegel claims we can know and affirm it as something good. 
+	- Very important to Marx - interesting connection - retrains the general idea of an objective world and the harmony of subjects. 
+	- Marx does not think the task is to "demonstrate" this unity but to make the world conform to a harmony with human aspiration. 
+	- Hegel thinks post French Revolution - this unity has already been realized. 
+	- Situation of being alientated - when you look at the world and do not feel free. The aim of philosophy is then to demonstrate it CAN accomodate our aspiration. It is a place of reconciliation. 
+- Is this view laughable given the current climate? Is this polyanna (over optimistic) view. 
+	- No. He believes that we do not therefore need radical overthrow (after the FR). 
+	- He takes seriously the IDEALS behind institutions with demanding standards (same standards as radical, marxist, leftists). They often fail to live up to them, but institutionally they are sound. 
+- Q - Telos of Hegelian philosophy, the historical eventuality, does this not reduce the practical im
+- All of Kants Critiques Published within the same decade - 1780s - relevant because FN thinks that the ideas were all developed together. So the 3rd critique isn't contradicting 1st critique. We must work to accomodate. 
+- What problem does Kant still think he needs to solve after the first two critiques? How does Kant develop this solution? 
+	- Distinction between theoretical, understanding (is the part of theoretical reason why can make use of) that makes use of the categories that synthesize the to form intutions. 
+	- A problem between "understanding" and pure 
+		- Categories are **concepts** Kant follwing Hume that are a prior that we bring to the empirical world in order to make sense of it. We can never have a sense experience of necessity 
+	- Judgment is another type of cognative faculty - a mediator between the faculties of understanding and practical reason. 
+	- Reason gives us two different sets of laws (legislations):
+		1. Freedom: Pure Practical Reason - The categorical imperative / moral law 
+		2. Nature: Understanding - the CATEGORIES -  formal kind (every event has space/time)
+	- Neither of these legislations interfere with eachother (autonomous of one another) i.e relationship between cannon law and civil law - they are seperate, independent autonomous law givings. 
+	- These two legislations apply in the SAME territory. How? They actions they require of us take play in the empirical world.
+		- What is the problem? Conflict? - Antigone, Federal/State Law. Can give contradictory prescriptions. This is NOT the problem. 
+	- GMM: Moral law does not tell us the ends , it tells us to focus on the MAXIM.
+	- In the CPR, he goes beyond this. Prescribes the ends. But what does he mean by ends? 
+		- German - Zweck - ends are NOT intentions. There are going to be some ends that are not going to be brought about by intention. But some state of affairs in the world. Independent of will.
+	- Q: Clarification - ends are not the will. there are ends which do not come about through 'wills'. Certain states of affair in the world that did not come about from willing them into existance. We can only understand them is thinking of them of the product of the will.
+		- i.e biological organisms - have a structure that we can only think of having been brought 
+	- Pure Practical Reason demands world peace (an end)
+	- Essence - understanding tells us something very important about what nature must be like. peace and justice must be realized in the empirical world. But where is the conflict? 
+		- It is not enough that nature be passive / agnostic. We need to show that Nature requires to POSITIVLEY aid the realization of peace and justice. 
